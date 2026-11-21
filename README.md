@@ -1,1 +1,1 @@
-# Team HQ - Tru so cua team
+# Team HQ
